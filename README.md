@@ -1,0 +1,1 @@
+# amanual.github.io
